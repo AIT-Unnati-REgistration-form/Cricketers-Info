@@ -96,3 +96,17 @@ Dale steyn is an south african international cricketer who plays for the south a
 steyn made his Test debut in 2004, along with a fellow rookie by the name of AB de Villiers, after he impressed Ray Jennings with his raw pace and stamina, in the home series against England after a combined experience of just 7 first-class games. A humbling loss on debut set him back as he picked up just 3 wickets in the game, although it included a ripper of an outswinger to knock over Michael Vaughan in the second innings. After a tally of just 8 wickets in the 3-Test series, Steyn failed to make a significant impact and was dropped from the side.
 
 
+## SMRITI MANDHANA
+
+Smriti Mandhana scored a century on day 2 of the Pink Ball Test between India and Australia. She reached a century with a boundary and with this, became the first Indian woman cricketer to score a century in a Pink Ball test.
+
+She was born on 18th July in the city of dreams to Smita and Srinivas Mandhana. Her father, a former district player, turned chemical distributor at a textile company, longed to see his incomplete dream through his children Shravan and Smriti. When she was two years old, her family moved to Sangli.
+
+Smriti’s father and her brother represented Maharashtra in U-16 tournaments and also played district level cricket.
+She is the only Indian batswoman to have scored an international double hundred in One Day Internationals (ODI’s). Smriti scored an unbeaten 224 off 150 balls in the West Indies Zone U-19 tournament. She may have done it at a junior level but what does she have to do if she is young.She happens to be one of the two Indian players to get a contract with the iconic Australian Big Bash League. She represents the Brisbane Heat. Harmanpreet Kaur is the other Indian.
+Smriti Mandhana was born to Smita and Srinivas Mandhana. Two years after her birth, the family shifted to Sangali, for which both her father and brother Sharavan played cricket.  After a brief period of district cricket, her father got a job as a chemical distributor at a textile company. 
+
+However, he longed to see his incomplete dream through his children. It was Shravan who started to play cricket first. Inspired by her brothers’ performances at the state U 16 tournaments, Smriti also picked up the bat at the age of six. Shravan made it to the Maharashtra U19s before opting for academics. 
+
+While now he is employed in a private bank, Shravan played a vital role in Smriti’s early career. He inspired her to take up cricket. Furthermore, it was her elder brother’s gift bat that brought good luck and fortune during Smriti’s double hundred. Shravan, while playing for the U 19s, approached Rahul Dravid and told him about Smriti’s passion. A humble Dravid signed his training bat and sent it to Smriti. 
+
